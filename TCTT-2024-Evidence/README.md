@@ -1,0 +1,1 @@
+https://medium.com/@st3llina/thctt2024-write-up-forensics-74af13f207d0
